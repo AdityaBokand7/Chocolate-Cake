@@ -1,20 +1,15 @@
-To  makee an tasty chocolate cake the ingredients are:-
-1 cup unsweetened cocoa powder (natural or Dutch process)
 
-2 1/2 cups all-purpose flour
 
-2 cups sugar
+                 *[INGREDIENTS]*
 
-1 1/2 teaspoons baking powder
+*1 teaspoon baking soda.
 
-1 teaspoon baking soda
+*1 teaspoon salt.
 
-1 teaspoon salt
+*3 large eggs, at room temperature.
 
-3 large eggs, at room temperature
+*3/4 cup vegetable oil.
 
-3/4 cup vegetable oil
+*1/2 cup sour cream.
 
-1/2 cup sour cream
-
-2 teaspoons vanilla extract
+*2 teaspoons vanilla extract.
